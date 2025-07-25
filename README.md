@@ -1,5 +1,7 @@
 # ᝰ.ᐟ bless
 
+Find tool here: https://amautomarket.com/products/bless-auto-mining
+
 Tool được phát triển bởi nhóm tele Airdrop Hunter Siêu Tốc (https://t.me/airdrophuntersieutoc)
 
 Link: [https://bless.network/dashboard](https://bless.network/dashboard?ref=4LC4UR)
